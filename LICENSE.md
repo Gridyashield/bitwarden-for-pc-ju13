@@ -1,4 +1,4 @@
-# 
+# Enhance Bitwarden for PC | Bitwarden for Windows with best Bitwarden for PC | Bitwarden for Windows Extension | auto-fill + secure-notes, the #1 extension. Includes auto-fill and
 
 
 
